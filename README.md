@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a student of CSE at Dawood University of Engineering and Technology<br>Passionate Web app developer<br><br>
+I am a student of CSE at Dawood University of Engineering and Technology<br>Passionate Web app developer<br>I am on journey to bnecome entrepreneur<br>
 
 
 ## 🌐 Socials:
